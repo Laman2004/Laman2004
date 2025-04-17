@@ -4,8 +4,8 @@
 - 💞️ I’m looking to collaborate on people who care about this field.
 - 📫 How to reach me lmanmikayilova95@gmail.com.
 - 🌐 LinkedIn: https://www.linkedin.com/in/laman-mikayilova/
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: She/Her
+- ⚡ Fun fact: I'm a fan of science fiction books and enjoy playing chess.
 
 <!---
 Laman2004/Laman2004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
